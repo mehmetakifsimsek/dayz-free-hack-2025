@@ -1,1 +1,1 @@
-# dayz-free-hack-2025
+artem krotov 2006 scam!!!
